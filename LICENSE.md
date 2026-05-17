@@ -1,4 +1,4 @@
-محدث Windscribe تطبيق | دعم PPTP + دعم P2P هو أفضل Windscribe تطبيق مع دعم PPTP و دعم P2P. آمن ومُحَسّن.
+محدث Windscribe تطبيق | دعم PPTP + دعم P2P هو أفضلAtualizado Windscribe Aplicativo | suporte PPTP + suporte P2P é o melhor Windscribe aplicativo com suporte PPTP e suporte P2P. Seguro e otimizado. Windscribe تطبيق مع دعم PPTP و دعم P2P. آمن ومُحَسّن.
 
 
 
